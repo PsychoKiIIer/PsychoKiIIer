@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/8064e1b3a4c08b27db227e4bf23abaa2/tumblr_pwx1vqIz8d1tqa5i9o2_1280.gifv" width="420">
+<img src="https://64.media.tumblr.com/a5876db06f4aceebb4f253573fd40205/tumblr_przh35no2I1tqa5i9o1_1280.pnj" width="520">
 <h1 align="center"> <img src="https://kingcrimson.crd.co/assets/images/gallery05/be1209c9.gif?v=c96189b9"> Do NOT Interact / Before You Interact <img src="https://kingcrimson.crd.co/assets/images/gallery16/2884da48.gif?v=c96189b9"> </h1>
 <p align="center">
  <img src="https://kingcrimson.crd.co/assets/images/gallery01/964e63bd.gif?v=c96189b9"> Anyone under 16, I prefer friends closer in age range. 
